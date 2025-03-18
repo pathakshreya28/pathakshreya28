@@ -1,4 +1,4 @@
-👋 Hi, I’m Shreya Pathak – Digital Marketing Manager 
+👋 Hi, I’m Shreya Pathak – Digital Marketing Manager cum Developer 
 
 🚀 Passionate about SEO, PPC, e-commerce, and social media marketing, I specialize in boosting website visibility, driving organic traffic, and optimizing digital campaigns for maximum ROI. With 4+ years of experience, I’ve helped brands enhance their online presence, resolve technical SEO issues, and grow their businesses through data-driven strategies.  
 
